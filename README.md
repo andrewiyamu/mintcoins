@@ -1,0 +1,2 @@
+# mintcoins
+mintcoins
