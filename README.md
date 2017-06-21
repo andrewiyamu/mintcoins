@@ -1,2 +1,16 @@
 # mintcoins
 mintcoins
+test tets ry.,n CLMA`NV.`V
+,MZ SNK.MSFB 
+.M `VJSVNFW.
+QJEFADWFHASDLVNAS/
+
+ADKJVBSADKBVSADJVNBNMVHJAD
+ DBCKJAN/C.KANCHDV
+ AM CADCCAK.MC
+ NACBAMV,AM C
+ ,MA CA,M C/A.CV
+ ';ACAVCHJBANC
+ 
+ , NAMNC A,NCanjbca,mcanman xvc
+ 
